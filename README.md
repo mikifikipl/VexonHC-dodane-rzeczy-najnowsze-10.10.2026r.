@@ -1,0 +1,1 @@
+# VexonHC-dodane-rzeczy-najnowsze-10.10.2026r.
